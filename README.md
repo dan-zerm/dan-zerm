@@ -1,4 +1,4 @@
-# Masters league player and future cracked engineer.
+# Masters league player and cracked engineer in the making.
 
 
 
